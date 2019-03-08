@@ -1,1 +1,1 @@
-# privacy policy for BUZZCARD on Google Play
+### privacy policy for BUZZCARD on Google Play
